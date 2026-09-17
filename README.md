@@ -1,1 +1,1 @@
-I am muhammad muhammad kudu, a professsional builder also a machine learning and Artifical Intelligence Engineer.
+I am Muhammad Muhammad Kudu, a professional builder also a machine learning and Artificial Intelligence Engineer.

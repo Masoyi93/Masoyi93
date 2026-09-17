@@ -1,1 +1,1 @@
-I am muhammad muhammad kudu, a professsional builder also a machine learning and Artifical Intelligence Engineer.
+I am muhammad muhammad kudu, a professsional builder also a machine learning and Artifical Intelligence Engineer. I am a very sincere, hardworking and God-fearing Man. I really appreciate my family, my father and my mother for the prayers she has been doing day and night. Thank You MAMA. Most importantly all Thanks To ALLAH SWA, for all the He has done for me.
